@@ -2,6 +2,7 @@
 penugasan pbo pertemuan 2
 
 Nama  : Reza Afzaal Faizullah Taqy
+
 NRP   : 5025241051
 
 Ini adalah hasil setelah saya latihan 1 minggu, masih belum bisa mencapai 80wpm hanya maks di 69wpm
